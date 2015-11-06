@@ -17,3 +17,4 @@ Jag är en naiv filur som försöker lära mig [game](https://www.youtube.com/wa
 - <a name="wingman"></a>**Wingman**: Person som gamar med dig.
 - <a name="approach"></a>**Approach**: Att ta initiativet och börja prata med en tjej.
 - <a name="chode"></a>**Chode**: Någon som inte kan/känner till game.
+- **Primordial ooze**: Tiden innan game. Också känd som **B.A.**: Before approaches.
