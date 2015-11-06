@@ -13,7 +13,7 @@ Jag är en naiv filur som försöker lära mig [game](https://www.youtube.com/wa
 
 
 ## Glosor
-- **Game**: [Bästa förklaringen jag kunnat hitta](https://www.youtube.com/watch?v=w65qBE-5fWg).
+- **Game**: [Bästa förklaringen jag kunnat hitta](https://www.youtube.com/v/zGHigJmPac). Ignorera titeln, hans titlar är alltid efterblivna.
 - <a name="wingman"></a>**Wingman**: Person som gamar med dig.
 - <a name="approach"></a>**Approach**: Att ta initiativet och börja prata med en tjej.
 - <a name="chode"></a>**Chode**: Någon som inte kan/känner till game.
