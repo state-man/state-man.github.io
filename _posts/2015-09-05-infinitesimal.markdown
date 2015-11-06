@@ -1,7 +1,8 @@
 ---
 layout: post
-title: "Primordial ooze: Att gå ut"
-tags: primordal ooze, no approaches, chodenight
+title: "Infinitesimal != 0"
+tags: no approaches, chodenight
+categories: primordial ooze
 ---
 
 ###Till Chodeboy
