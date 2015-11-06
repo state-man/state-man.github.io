@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Primordial ooze: Att gå ut"
-date: "2015-09-05 15:06"
+tags: primordal ooze, no approaches, chodenight
 ---
 
 ###Till Chodeboy
