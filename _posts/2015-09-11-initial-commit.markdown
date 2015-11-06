@@ -43,6 +43,6 @@ Detta kan stämma, och i sånna fall antar jag att jag löser det på samma sät
 
 Dock är jag inte äns rationellt övertygad om att en riktigt dålig approach faktiskt kan fucka upp mig. Men om detta händer antar jag att jag blir starkare efteråt.
 
-Är i alla fall glad att jag har stöd från **Rachel**, så att jag vet att jag kan ta mig igenom vad som än händer ändå.
+Är i alla fall glad att jag har stöd från **Chodeboy**, så att jag vet att jag kan ta mig igenom vad som än händer ändå.
 
 Du och jag bestämde oss för att testa en ny grej igår när vi diskuterade. Planen var något i stil med att du skulle approacha och jag skulle viska teori i ditt öra. Detta låter både kul och effektivt, så hoppas du fortfarande är på att göra det. Tror detta kan hjälpa dig.
