@@ -2,7 +2,7 @@
 layout: post
 title: "Nill"
 tags: no approaches, chodenight
-categories: primordial ooze
+categories: [primordial ooze]
 ---
 
 ### Till Chodeboy

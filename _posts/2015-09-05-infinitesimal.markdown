@@ -2,7 +2,7 @@
 layout: post
 title: "Infinitesimal != 0"
 tags: no approaches, chodenight
-categories: primordial ooze
+categories: [primordial ooze]
 ---
 
 ### Till Chodeboy
