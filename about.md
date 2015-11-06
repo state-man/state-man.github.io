@@ -13,8 +13,8 @@ Jag är en naiv filur som försöker lära mig [game](#game). Vi får väl se va
 
 
 ## Glosor
-- <a name="game">**Game**</a>: [Bästa förklaringen jag kunnat hitta](https://www.youtube.com/v/zGHigJmPac). Ignorera titeln, hans titlar är alltid efterblivna.
-- <a name="wingman">**Wingman**</a>: Person som gamar med dig.
-- <a name="approach">**Approach**</a>: Att ta initiativet och börja prata med en tjej.
-- <a name="chode">**Chode**</a>: Någon som inte kan/känner till game.
+- <a name="game"></a>**Game**: [Bästa förklaringen jag kunnat hitta](https://www.youtube.com/v/zGHigJmPac). Ignorera titeln, hans titlar är alltid efterblivna.
+- <a name="wingman"></a>**Wingman**: Person som gamar med dig.
+- <a name="approach"></a>**Approach**: Att ta initiativet och börja prata med en tjej.
+- <a name="chode"></a>**Chode**: Någon som inte kan/känner till game.
 - **Primordial ooze**: Tiden innan game. Också känd som **B.A.**: Before approaches.
