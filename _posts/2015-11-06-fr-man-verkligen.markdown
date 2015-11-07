@@ -97,4 +97,4 @@ Allt detta är dock prat från en man som inte ens hamnat i state, över huvud t
 
 ## Slut
 
-Allt jag hade att säga, kritik är välkommen.
+Allt jag hade att säga, kritik är välkommen. Mer välkommet än det är pull-requests!
