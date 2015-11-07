@@ -25,4 +25,4 @@ Jag är en naiv filur som försöker lära mig [game](#game). Vi får väl se va
 - <a name="set"></a>**Set / Mängd**: En samling människor att approacha.
 - <a name="krok"></a>**Kroka**: En brud tycker du är het / vill knulla dig.
 - <a name="eskalera"></a>**Eskalera**: Bli mer sexuell / Visa din attraktion.
-- <a name="anime"></a>**Anime ögon**: Ögonen på en brud som blir hookad. Stora och förväntansfulla, kan man väl säga.
+- <a name="anime"></a>**Anime ögon**: Ögonen på en brud som blir krokad. Stora och förväntansfulla, kan man väl säga.
