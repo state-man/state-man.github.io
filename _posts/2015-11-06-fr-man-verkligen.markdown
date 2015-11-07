@@ -10,7 +10,7 @@ Ok, denna natten blev ganska fuckad. Allt började väldigt dåligt med att jag 
 
 Aja, nog om det. Kontenan av detta blev i alla fall att mitt hår blev förstört, vilket gör mig väldigt ledsen. Jag gillar mitt hår! När han äntligen kom fram bestämde vi oss för att dra till gratisklubben då han är en fattig jävel. Den fattiga clubben är helt ok, men färre brudar går dit så det blir svårare att komma i gång där. Men vi är vana vid det här laget och tackar aldrig nej till en fin utmaning så av blir det!
 
-Det verkade vara mycket folk i början, men det visade sig vara mestadels gamlingar som hade varit där på någon form av after work. Det tog mig säkerligen en halvtimme att lämna min jacka och ta mig upp till självaste cluben i sig. När vi väl var framme så berättade jag för [**Chodeboy**](/om-mig#Personer) om [en ny övning](https://youtu.be/D52YV6dL8IM?t=6m30s) Julien har presenterat. Övningen är helt enkelt att du pratar mot en vägg, non-stopp i 2 minuter så snabbt du kan. Poängen med detta är att träna dig att inte vara reaktiv samt att ta bort alla filter du naturligt har när du pratar.
+Det verkade vara mycket folk i början, men det visade sig vara mestadels gamlingar som hade varit där på någon form av after work. Det tog mig säkerligen en halvtimme att lämna min jacka och ta mig upp till självaste cluben i sig. När vi väl var framme så berättade jag för [**Chodeboy**](/om-mig#Personer) om [en ny övning](https://youtu.be/D52YV6dL8IM?t=6m30s) Julien har presenterat. Övningen är helt enkel: Du pratar mot en vägg, non-stopp i 2 minuter så snabbt du kan. Poängen med detta är att träna dig att inte vara reaktiv samt att ta bort alla filter du naturligt har när du pratar.
 
 
 ### Interaktion 1: Ihågkommen
