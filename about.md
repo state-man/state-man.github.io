@@ -19,7 +19,7 @@ Jag är en naiv filur som försöker lära mig [game](#game). Vi får väl se va
 - <a name="game"></a>**Game**: [Bästa förklaringen jag kunnat hitta](https://www.youtube.com/v/zGHigJmPac). Ignorera titeln, hans titlar är alltid efterblivna.
 - <a name="vingman"></a>**Vingman**: Person som kör game med dig.
 - <a name="attack"></a>**Attack**: Att ta initiativet och börja prata med en tjej.
-- a name="attacksangest"></a>**Attacksångest**: Att vara rädd att attackera
+- <a name="attacksangest"></a>**Attacksångest**: Att vara rädd att attackera
 - <a name="chode"></a>**Chode**: Någon som inte kan/känner till game.
 - <a name="Primordial-ooze"></a>**Primordial ooze**: Tiden innan game. Också känd som **B.A.**: Before approaches.
 - <a name="set"></a>**Set / Mängd**: En samling människor att approacha.
