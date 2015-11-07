@@ -19,7 +19,7 @@ Jag är en naiv filur som försöker lära mig [game](#game). Vi får väl se va
 - <a name="game"></a>**Game**: [Bästa förklaringen jag kunnat hitta](https://www.youtube.com/v/zGHigJmPac). Ignorera titeln, hans titlar är alltid efterblivna.
 - <a name="wingman"></a>**Wingman**: Person som gamar med dig.
 - <a name="approach"></a>**Approach**: Att ta initiativet och börja prata med en tjej.
-- <a name="chode"></a>**Chode**: Någon som inte kan/känner till game.
+- <a name="chode"></a>**Chode**: Någon som inte kan / känner till game.
 - **Primordial ooze**: Tiden innan game. Också känd som **B.A.**: Before approaches.
 - **Set / Mängd**: En samling människor att approacha.
 - **Hook**: En brud tycker du är het / vill knulla dig.
