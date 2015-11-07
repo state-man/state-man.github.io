@@ -2,7 +2,7 @@
 layout: post
 title: "Får man verkligen?"
 date: "2015-11-06"
-tags: ["konfrontation", "eskalera", "Darin", ""]
+tags: ["konfrontation", "eskalera", "Darin"]
 ---
 
 # Natten
