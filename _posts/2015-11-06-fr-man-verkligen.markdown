@@ -20,7 +20,7 @@ Den lite mulliga stirrar på mig konstigt, vilket creepar ut mig, sen säger hon
 
 Vi fortsätter snacka, med vi menar jag mig själv och brudarna ([**Chodeboy**](/om-mig#Personer) är [**Chode**](/om-mig#Glosor)), men efter ett tag så blir jag uttråkad så jag bestämmer mig för att låssas vara en het brud; med det menar jag att jag bara börjar ge 1 ords svar på allt de säger (använde jag semikolon rätt där?). De reagerar som de flesta [**Chodes**](/om-mig#Glosor) brukar och drar, dock på ett relativt positivt sätt, tror jag... jag hoppas det i alla fall. I vilket fall var det ganska kul.
 
-### [attack](/om-mig#Glosor) 1: Elektrifierad elefant
+### [Attack](/om-mig#Glosor) 1: Elektrifierad elefant
 
 När de lämnat så är det dags att sätta igång. [**Chodeboy**](/om-mig#Personer) pekar på en brud och jag känner av [attacksångest](/om-mig#Glosor), men vid detta laget så har jag lärt mig att gå emot det, så jag sätter igång.
 
@@ -30,7 +30,7 @@ Jag kommer slutligen fram och öppnar på standard sättet: Petar på axel(dock 
 
 Jag ska vara helt ärlig här: Jag kommer fan inte ihåg ett ända ord jag sa till henne, vilket förvånar mig för evolutionärt sett tänker jag mig att skit man upplever med 10 liter addrenalin i kroppen är saker man borde fucking komma ihåg, but I digress. Det jag kommer ihåg var att jag åtminstånde socialt [kroka](/om-mig#Glosor) henne, då hon verkligen var villig att fortsätta prata, och jag såg en vag resemblance till [**anime ögon**](/om-mig#Glosor). Dock är det svårt att säga då jag stack därifrån efter mindre än 1 minut.
 
-### [attack](/om-mig#Glosor) 2: Fuck Darin
+### [Attack](/om-mig#Glosor) 2: Fuck Darin
 
 Jag lämnar bruden, neurotisk som en elektrifierad elefant, och går tillbaka till [**Chodeboy**](/om-mig#Personer). Han grattar mig för att jag gjorde en riktig [attack](/om-mig#Glosor) (wingman ettikett), och jag böjar lugna ner mig. [**Chodeboy**](/om-mig#Personer) har själv vid detta laget gjort 1 [attack](/om-mig#Glosor), och han gillar att hålla igång det (en bra kvalitet jag borde ta till mig) så han öppnar en gående [dubbelmängd](/om-mig#Glosor) (Holy shit!!!) och de stannar faktiskt! Han säger något till brudarna och jag tar mig en titt. Den ena är svarthårig, kort och har ett OK ansikte. Den andra är ginger, kort och ganska söt. Hur fan han lyckades få dom att stanna är beyond me.
 
@@ -40,7 +40,7 @@ Självklart var det honom hon tänkte på så hon blir galen, kramar mig och bö
 
 Jag är dock fortfarande uttråkad så vi lämnade dom ändå.
 
-### [attack](/om-mig#Glosor) 3: En ny sorts rejection
+### [Attack](/om-mig#Glosor) 3: En ny sorts rejection
 
 Vid detta laget börjar jag snacka lite skämtsamt om hur jag stör mig på game för att det är så jobbigt. [**Chodeboy**](/om-mig#Personer) skrattar och säger åt mig att göra en till [attack](/om-mig#Glosor), vilket jag absolut inte kännde för att göra. Jag gjorde det. Såg en fet brud, gick fram, standard open, och hon tittar mig djupt i ögonen. Open skillde sig lite från standard denna gånen dock, hon sa nej först, sen sa jag "2 sekunder" och så kom hon. Detta skrämmer skiten ur mig så jag tittar ner i marken och fortsätter prata, som jag brukar. Sedan säger hon något jag aldrig har hört förut. Jag pratar, får slut på saker att säga i 2 sekunder, sen säger hon: "Aja, du får ha det bra" och så sticker hon tillbaka till sina vänner. Att bli rejectad sådär har aldrig hänt mig förut, tidigare har det alltid varit att:
 
@@ -54,7 +54,7 @@ Detta var väldigt intressant, och lite deprimerande, i alla fall i stunden. Det
 
 Vi går in på dansgolvet och dansar lite. Jag visar [**Chodeboy**](/om-mig#Personer) [maskdansen](https://youtu.be/YsnIYDk1RAM?t=3m20s). Det var allt.
 
-### [attack](/om-mig#Glosor) 4: [kroka](/om-mig#Glosor) man borde man agera
+### [Attack](/om-mig#Glosor) 4: [krokar](/om-mig#Glosor) man borde man agera
 
 Jag berättar för [**Chodeboy**](/om-mig#Personer) att jag är död och troligen inte kan komma tillbaka. Hon som gick i vår gamla skola är också i närheten och det känns pinsamt att approcha framför henne, säger jag. Han kallar mig en jävla [**Chode**](/om-mig#Glosor) och säger åt mig att öppna en dubellmängd med honom. Jag går fram bakom honom och jag öppnar. De var 2 brudar, den ena pratade i telefon så jag såg henne inte och den andra var blond och *lite* söt. Vi pratar båda med henne lite, men uppmärksamheten ligger på [**Chodeboy**](/om-mig#Personer) som snackar med henne mest. Den andra bruden lägger på och vänder sig mot oss. Det visar sig att de båda var tvillingar. Jag tänker: "De är identiska ändå" så jag börjar prata med den nya tvillingen.
 
@@ -66,7 +66,7 @@ Efter ett tag kommer den andra tvillingen fram till mig och viskar "Man får". S
 
 Kännde mig som sagt osäker så gjorde ingenting. Hennes vänner kommer tillbaka och denna gången följer hon med. Hon avslutar med "Vi ses väl någon gång?". Jag är inte mindre död vi det här laget.
 
-### [attack](/om-mig#Glosor) 5: Nu blir det läskigt
+### [Attack](/om-mig#Glosor) 5: Nu blir det läskigt
 
 Vi går fram till två brudar som står i ett hörn. Jag tar den fulare, tänker att jag inte har mycket till chans vid detta laget ändå. Jag snackar med denna bruden, och hon pratar tillbaka men visar så lite intresse man kan tänka sig. Jag pratar med henne och hon sitter seriöst med telefonen i handen och svarar bara med: "Ah", "Ok", "Jo". Jag tänker att detta är en chans att plowa i 2 minuter som Julien säger. Jag stannar kvar i mer än 2 minuter och inget händer. "Sorgligt" tänker jag, men jag stannar för [**Chodeboys**](/om-mig#Personer) skull. Min brud kallar till sig några personer, och med kallar till sig menar jag: Lämnar mig i mitten av en mening för att hämta några dudes.
 
