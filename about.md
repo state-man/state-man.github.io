@@ -22,7 +22,7 @@ Jag är en naiv filur som försöker lära mig [game](#game). Vi får väl se va
 - <a name="attacksangest"></a>**Attacksångest**: Att vara rädd att attackera
 - <a name="chode"></a>**Chode**: Någon som inte kan/känner till game.
 - <a name="Primordial-ooze"></a>**Primordial ooze**: Tiden innan game. Också känd som **B.A.**: Before approaches.
-- <a name="set"></a>**Set / Mängd**: En samling människor att approacha.
+- <a name="set"></a>**Set / Mängd**: En samling människor att attackera.
 - <a name="krok"></a>**Kroka**: En brud tycker du är het / vill knulla dig.
 - <a name="eskalera"></a>**Eskalera**: Bli mer sexuell / Visa din attraktion.
 - <a name="anime"></a>**Anime ögon**: Ögonen på en brud som blir krokad. Stora och förväntansfulla, kan man väl säga.
