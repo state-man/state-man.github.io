@@ -85,6 +85,8 @@ När det gäller brudarna jag hookat är jag rätt säker på att allt handlar o
 
 En möjlig lösning är att om han säger åt mig att eskalera så måste jag göra det eller gå hem. Vi får se.
 
+Jag märker att jag fortfarande är ganska outcome dependent, i alla fall när det gäller att hålla igång konversationen. Måste fixa detta, och reflektera det mer detaljerat i nästa rapport.
+
 Bruden som rejektade mig på ett helt nytt sätt är interesant. Jag reagerade väldigt negativt, men det är att förvänta när något helt nytt händer. Detta behöver dock inte betyda så mycket. Det finns brudar man bara inte kan få om man inte har state. Typen jag kände till är validation-brudar: De rejectar alla som inte öppnar starkt som fan. Inget att göra åt om du inte har state. Den nya typen jag hittade här är brudar som låter dig öppna, men sedan rejektar dig snabbt om du inte visar value/state.
 
 Det kan dock också ha att göra med att jag öppnade väldigt starkt ("2 sekunder, det är lugnt") och sedan var väldigt svar. Kan ses om inconguent.
