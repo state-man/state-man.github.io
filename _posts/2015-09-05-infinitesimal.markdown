@@ -5,7 +5,7 @@ tags: no approaches, chodenight
 categories: [primordial ooze]
 ---
 
-### Till Chodeboy
+### Till Chodegirl
 
 Gjorde 1 approach. Blev rejectad som förväntat fast omedelbart. I stunden var jag extremt stressad men vet ej själv hur jag såg ut. Du får berätta lite om det.
 
