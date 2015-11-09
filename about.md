@@ -14,6 +14,10 @@ Jag är en naiv filur som försöker lära mig [game](#game). Vi får väl se va
 - **Britney**: Student som inte äns kan ligga med brudar som sover i hans säng.
 - **Filosofen**: Återstår att se vad denne man är gjord av.
 
+## Platser
+- **Hakkasan**: Den sämsta klubben vi kommer in på. Liten, dålig musik, obekvämt, dålig logistik och den stänger 2. Entrén är alltid svin billig dock.
+- **Omnia**: Klubben som ofta låter oss (och alla andra) komma in gratis, dock *inte* alltid. Väldigt stor, vilket gör det ganska svårt att [attackera](#glosor) flera i rad, samt är stället ofta väldigt tomt. Inte det bästa stället, men vi kommer alltid in där.
+- **XS**: Den bästa klubben i stan. Bra läge, bra utformning, bra musik och *alltid* mycket folk. Kostar dock alltid och vi blir inte alltid insläppta. Jag jobbar på det...
 
 ## Glosor
 - <a name="game"></a>**Game**: [Bästa förklaringen jag kunnat hitta](https://www.youtube.com/v/zGHigJmPac). Ignorera titeln, hans titlar är alltid efterblivna.
