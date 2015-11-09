@@ -46,4 +46,6 @@ En positiv realisering jag fick av detta var dock att det inte är så farligt a
 # *Slutord*
 Aja, värre än detta kan det inte bli och jag är glad att jag skrev denna rapporten. Bra att veta att jag i alla fall fick ut något ur natten, faktiskt något väldigt viktigt jag måste rätta till.
 
+Kritik och [pull-requests](https://github.com/state-man/state-man.github.io) som vanligt väldigt välkomna!
+
 Orelaterat men använder jag semikolon rätt?
