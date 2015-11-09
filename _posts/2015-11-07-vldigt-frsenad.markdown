@@ -8,7 +8,7 @@ tags: ["Hakkasan", "död", "inlåst"]
 
 
 # *Förord*
-Jag borde ha skrivit denna artikeln tidigare. Det finns inga ursäkter. Allt jag kan säga är att anledningen till att jag inte tidigare skrev den är att jag helt enkelt inte såg någon poäng i att skriva en artikel av denna natten då för lite hände, helt enkelt. Detta är dock en helt efterbliven ursäkt; Det finns alltid något att lära sig, i värsta fall får man i alla fall lite perspektiv på händelserna och någon lärdom från händelsen.
+Jag borde ha skrivit denna artikeln tidigare. Det finns inga ursäkter. Allt jag kan säga är att anledningen till att jag inte tidigare skrev den är att jag inte såg någon poäng i att skriva en artikel av denna natten då för lite hände, helt enkelt. Detta är dock en helt efterbliven ursäkt; Det finns alltid något att lära sig, i värsta fall får man i alla fall lite perspektiv på händelserna och någon lärdom från händelsen.
 
 Hitills har jag bara försökt glömma bort natten. Med detta menar jag inte att den var traumatisk eller något, jag ska inte lura mig själv, men den var mycket mindre än vad jag förväntade mig.
 
