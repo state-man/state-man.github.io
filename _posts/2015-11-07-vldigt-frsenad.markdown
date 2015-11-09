@@ -17,12 +17,12 @@ Aja, ingen mer prokrastinering, nu kör vi!
 
 
 # Natten
-Klockan är 10. Natten börjar med att vi *inte* går till [XS](/om-mig#Platser) då [Chodegirl](/om-mig#Personer) har väldigt lite pengar :(. Vi bestämmer oss snabbt att dra till [Hakkasan](/om-mig#Platser) (Det bådar inte gott redan).
+*Klockan är 10*. Natten börjar med att vi *inte* går till [XS](/om-mig#Platser) då [Chodegirl](/om-mig#Personer) har väldigt lite pengar :( . Vi bestämmer oss snabbt att dra till [Hakkasan](/om-mig#Platser) (Det bådar inte gott redan).
 Klockan är runt 11. När vi väl kommer fram är kön väldigt lång, så lång att vakten varnar oss att det kommer ta *väldigt* lång tid innan vi kommer in. Väldigt förvånande för att vara [Hakkasan](/om-mig#Platser), men vi har aldrig låtit frustrerande situationer stoppa oss förut. Vi stannar.
 
-Klockan är 12:30. Vi lämnar våra jackor och skyndar oss in då [tiden redan är knapp](/om-mig#Platser). Jag ser väldigt lite folk, men fortsätter bara gå utan att kontemplera detta. Vi går mot trappan till övervåningen och blir stoppade av ännu en kö. Tydligen har [Hakkasan](/om-mig#Platser) bestämt sig för att ha ytterligare en kö till övervåningen: våningen som har alla människor. Så kan det gå...
+*Klockan är 12:30*. Vi lämnar våra jackor och skyndar oss in då [tiden redan är knapp](/om-mig#Platser). Jag ser väldigt lite folk, men fortsätter bara gå utan att kontemplera detta. Vi går mot trappan till övervåningen och blir stoppade av ännu en kö. Tydligen har [Hakkasan](/om-mig#Platser) bestämt sig för att ha ytterligare en kö till övervåningen: våningen som har alla människor. Så kan det gå...
 
-Klockan är 1. Vi har 1 timme kvar att köra, men vi båda känner oss väldigt obekväma. Vi gör inget i ett tag och jag stöter på 2 gamla vänner. Det visar sig att den ena av dom är promoter på denna klubben. Förvånar mig inte så mycket, vi har sett honom här flera gånger. Vi pratar lite och han säger att om jag vill komma in här gratis när jag vill så är det bara att ringa. "Tack", säger jag och hoppas att han driver med mig; men jag är ingen person som förolämpar folk, så jag säger inget mer.
+*Klockan är 1*. Vi har 1 timme kvar att köra, men vi båda känner oss väldigt obekväma. Vi gör inget i ett tag och jag stöter på 2 gamla vänner. Det visar sig att den ena av dom är promoter på denna klubben. Förvånar mig inte så mycket, vi har sett honom här flera gånger. Vi pratar lite och han säger att om jag vill komma in här gratis när jag vill så är det bara att ringa. "Tack", säger jag och hoppas att han driver med mig; men jag är ingen person som förolämpar folk, så jag säger inget mer.
 
 Är nu inlåst i mitt huvud och tycker att det är dags att köra. Denna situationen stressar mig mycket. Jag är inlåst i mitt huvud, min gamla vän som är promoter är i närheten och jag ska attackera random brudar. Detta borde självkart inte stressa mig, men jag är en chode. "Aja, detta kommer inte bli bättre" tänker jag och kör.
 
