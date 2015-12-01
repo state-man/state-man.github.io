@@ -12,7 +12,7 @@ Jag är en naiv filur som försöker lära mig [game](#game). Vi får väl se va
 - **Tillståndsmyndigheten**: Mannen som gick ut med oss och approachade som en galning! Han var den som verkligen visade att det var ok! Legendstatus!
 - **Jesse Pinkman**: Rolig filur som agerar som moraliskt stöd ibland. Certifierad [chode](#chode).
 - **Britney**: Student som inte ens kan ligga med brudar som sover i hans säng.
-- **Filosofen**: Återstår att se vad denne man är gjord av.
+- **Filosofen**: En naturbegåvning som är posiv och [attackerar](#attack) som fan! Han gamar aldrig och är lat som fan, dock.
 
 ## Platser
 - **Hakkasan**: Den sämsta klubben vi kommer in på. Liten, dålig musik, obekväm, dålig logistik och den stänger 2. Entrén är alltid svin billig dock.
