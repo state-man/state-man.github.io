@@ -8,7 +8,7 @@ Jag är en naiv filur som försöker lära mig [game](#game). Vi får väl se va
 
 ## Personer
 - **Chodegirl**: Min *bästa* [vingman](#vingman) och andra halva <3.
-- **FarranDenStore**: Återkommande [vingman](#vingman). Mannen som fick oss att [attackera](#attack) i början. Har legendstatus på grund av det!
+- **Cricket**: Återkommande [vingman](#vingman). Mannen som fick oss att [attackera](#attack) i början. Har legendstatus på grund av det!
 - **Tillståndsmyndigheten**: Mannen som gick ut med oss och approachade som en galning! Han var den som verkligen visade att det var ok! Legendstatus!
 - **Jesse Pinkman**: Rolig filur som agerar som moraliskt stöd ibland. Certifierad [chode](#chode).
 - **Britney**: Student som inte äns kan ligga med brudar som sover i hans säng.
