@@ -15,7 +15,7 @@ tags: approach anxiety
 
 ## Natten & analys
 
-Gjorde 1 approach. Blev rejectad som förväntat™, dock inte omedelbart denna gången. Denna gången kunde jag och **FarranDenStore** faktiskt hålla igång konversationen och nå social hookpoint. Detta kan vara på grund utav slump, men tror att det var för hur det känndes.
+Gjorde 1 approach. Blev rejectad som förväntat™, dock inte omedelbart denna gången. Denna gången kunde jag och **Cricket** faktiskt hålla igång konversationen och nå social hookpoint. Detta kan vara på grund utav slump, men tror att det var för hur det känndes.
 
 Visst var jag stressad när jag gjorde det, men mycket mindre stressad än senast, så tror detta lät mig hålla igång det längre.
 
